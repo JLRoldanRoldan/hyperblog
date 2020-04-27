@@ -5,3 +5,6 @@ En este curso vemos de todo
 
 
 Creado por el increible Platzi Team!!!
+Creado por el increible Platzi Team!!!
+Incluye ejemples en windows, Linux y mac!
+Disponible para todas las edades!.
